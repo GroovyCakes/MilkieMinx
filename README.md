@@ -3,12 +3,13 @@
   ℌ𝔢𝔩𝔩𝔬 ℑ𝔫𝔱𝔢𝔯𝔫𝔢𝔱 𝔗𝔯𝔞𝔳𝔢𝔩𝔢𝔯𝔰, ℜ𝔢𝔰𝔱 𝔞𝔴𝔥𝔦𝔩𝔢 𝔣𝔬𝔯 𝔶𝔬𝔲𝔯 𝔧𝔬𝔲𝔯𝔫𝔢𝔶 𝔥𝔞𝔰 𝔟𝔢𝔢𝔫 𝔰𝔱𝔯𝔢𝔫𝔲𝔬𝔲𝔰.
 
 You've probaly traveled here from PT(PonyTown) and must I say, Thanks for dropping in and being curious to learn more about who I am!
-I really appreciate those who are capable of emotional regulation & unbiased opinions that are not easily influcened for socail acceptance, meaning that you dont judge others on a first interation basis and form your own opinions with due dillengence. ![image](https://github.com/user-attachments/assets/752d0184-ee31-426c-9028-24b1b3b54509)
+I really appreciate those who are capable of emotional regulation & unbiased opinions that are not easily influcened for social acceptance, meaning that you dont judge others on a first interation basis and form your own opinions with due dillengence. ![image](https://github.com/user-attachments/assets/752d0184-ee31-426c-9028-24b1b3b54509)
 
   𝐻𝑒𝓇𝑒’𝓈 𝒶 𝐿𝒾𝓉𝓉𝓁𝑒 𝒜𝒷𝑜𝓊𝓉 𝑀𝑒 & 𝒯𝒽𝑒 𝓉𝒽𝒾𝓃𝑔𝓈 𝐼 𝓁𝒾𝓀𝑒 𝑜𝓇 𝒹𝒾𝓈𝓁𝒾𝓀𝑒:
 
 
 A little about me first(will add more later):
+
 ![image](https://github.com/user-attachments/assets/ead5d30c-eafe-4183-a641-45653a82227c)
 I am deslyexic and find reading texts to be difficult, especially when the chatbox moves to fast for me to read! You may need to send your message in a DM to get me to really see it, otherwise please be patient with me! I often type looking at my keyboard and scroll through messages once I've finished speaking. This isnt an excuse of any kind just something you should be aware of if you're choosing to interact with me.
 
